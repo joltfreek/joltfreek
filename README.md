@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @joltfreek
+- 👀 I’m interested in ... Music, Gaming, Making e-JUICE
+- 🌱 I’m currently learning ... the Machine MK3
+- 💞️ I’m looking to collaborate on ... Learning
+- 📫 How to reach me ... I am joltfreek on everything
